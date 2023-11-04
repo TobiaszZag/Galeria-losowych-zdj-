@@ -1,1 +1,1 @@
-# Galeria-losowych-zdj-
+# Galeria-losowych-zdjec-
